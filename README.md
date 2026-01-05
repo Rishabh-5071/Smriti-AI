@@ -1,1 +1,1 @@
-Smiriti AI - Add Readme file later
+Smiriti AI 
